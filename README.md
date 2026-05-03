@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi !<br>I'm a french 20 y/o student, currently in a BTS SIO at Saint-Louis located at Châteaulin.<br>Nice to meet you :)
+Hi !<br>I'm a french 20 y/o student, currently in a BTS SIO at Saint-Louis located at Châteaulin.<br>Nice to meet you :D
 
 
 ## 🌐 Socials:
